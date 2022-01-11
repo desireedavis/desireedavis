@@ -1,6 +1,6 @@
 -  Hi 👋🏾, I’m Desiree
 
-- 🎨 I'm an Artist and have a freelance business creating canvas art, wall murals and digital illustrations (My work currently lives on all but 3 of the continents!) 
+- 🎨 I'm an Artist and have a freelance business creating canvas art, wall murals and digital illustrations (My work currently lives on all but 3 of the continents) 
 
 - 🌴 Born in California, reside in NC
 
