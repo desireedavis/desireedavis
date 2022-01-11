@@ -12,7 +12,7 @@
 
 - 💞️ I would love to collaborate with others in the web development field who are learning just like me!
 
-- ✍🏾 Sometimes I write artles on
+- ✍🏾 Sometimes I write articles on
 
 - 📫 How to reach me @desiireedavis (Twitter)
 
