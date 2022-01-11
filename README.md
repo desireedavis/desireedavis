@@ -10,7 +10,7 @@
 
 - 👀 I’m interested in Art, Web Design and Front-End Development
 
-- 💞️ I would love to collaborate with others in the web development field who are learning just like me!
+- 💞️ I would love to collaborate with others in the web development world who are learning just like me!
 
 - ✍🏾 Sometimes I write articles on
 
