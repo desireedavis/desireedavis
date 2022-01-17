@@ -12,13 +12,11 @@
 
 - 💞️ I would love to collaborate with others in the web development world who are learning just like me!
 
-- ✍🏾 Sometimes I write articles on...
-- https://desireedavis.hashnode.dev
+- ✍🏾 Sometimes I write articles on...https://desireedavis.hashnode.dev
 
 - 📫 How to reach me @desiireedavis (Twitter)
 
-- 📝 Find out about my experience
-https://www.linkedin.com/in/desireedavis7/
+- 📝 Find out about my experience...https://www.linkedin.com/in/desireedavis7/
 
 - 😊 Fun facts - I used to play the violin in middle school and I loveeee turtles
 
